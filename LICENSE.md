@@ -1,4 +1,4 @@
-# 
+# Ultime Cubase plugins pour Mac OS | Automatique Cubase plugins pour PC Windows. Avec fond vert et expressions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
